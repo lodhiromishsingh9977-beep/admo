@@ -1,1 +1,1 @@
-# admo
+google.com, pub-6953592780504102, DIRECT, f08c47fec0942fa0
